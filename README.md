@@ -1,0 +1,1 @@
+# Finansal-Hisse-Analizi-AAPL-MSFT-K-yaslama
